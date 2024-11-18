@@ -1,3 +1,5 @@
+# The Plane Itself
+
 The Physical Plane is as you’d expect, it’s everything physical in the 3rd dimension that’s constantly traveling through time. 
 
 The dominant species in the physical plane is humanity, the Physical Plane is not much different from the world you know, the geography is similar. The main difference is in the history of the Plane.
