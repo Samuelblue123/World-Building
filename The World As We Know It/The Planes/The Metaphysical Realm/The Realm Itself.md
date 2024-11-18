@@ -7,8 +7,7 @@ The one-way mirror description comes from the fact that those who inhabit the Re
 ### Arcadia Rifts
 In certain locations the veil between realms is weaker than others, Arcadia Rifts. These can be described as holes in the mirror where those in the Physical Plane are capable of seeing into the Realm Beyond Reason, but only a small area. It's as if you're looking through a pin-hole in a mile wide canvas. One such known location is The Valley. 
 
-A strange phenomenon noticed by Those Who Understand is that both the Eldritch and humans seem to be attracted to these Arcadia Rifts, for reasons not yet understood.
+A strange phenomenon noticed by Those Who Understand is that both the Eldritch and humans seem to be attracted to these Arcadia Rifts, for reasons not yet understood but speculated upon.
 
 ### Remnant Energy
-clean up but
-remnant energy is the waste product of cosmic leeches that acts as a lifeforce for the Eldritch(link).
+Remnant Energy is an assumed byproduct of cosmic leeches. This substance then manifests itself in the Realm Beyond Reason and would act as a way for the Eldritch to preserve their lives and increase their lifespans. This is, however, all conjecture on behalf of Those Who Understand in an attempt to rationalize the motives of beings whom we cannot fathom to understand.
