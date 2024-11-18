@@ -5,7 +5,8 @@ The Physical Plane is as you’d expect, it’s everything physical in the 3rd d
 The dominant species in the physical plane is humanity, the Physical Plane is not much different from the world you know, the geography is similar. The main difference is in the history of the Plane.
 
 ## The History
-clean this up:
+The history of this plane is much the same as the world you know. The only differences are the technology that is currently used. Due to an event known as the Catastrophe, the progress of the world has slowed down significantly. Across most of the plane society is just under 100 years behind in technological advancements except for a few continue this later
+
 history is pretty normal, aside from the fact that they are about 100 years behind in most locations due to the catastrophic event that happened around 200 years ago that left around 50k people remaining. one of which was The One Who Understood.
 
 #### The Catastrophe
