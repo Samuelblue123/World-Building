@@ -18,6 +18,6 @@ A second entity crossed Arcadia. An Eldritch known as [The Dreamer]. This Eldrit
 
 #### The Aftermath
 
-Humanity had no idea what happened, all of history up until that point had been erased. Such is the fate of the plane having been afflicted with [The Pale Erasure] (goes in the eldritch in general). 
+Humanity had no idea what happened, all of history up until that point had been erased. Such is the fate of the plane having been afflicted with [The Pale Erasure] (goes in the eldritch in general). 99.995% of humanity had been erased, gone without a trace, leaving only 53,200 known survivors, one of which was [The One Who Understood]. Having borne witness to the Dreamer firsthand, The One Who Understood had a gift bestowed upon them, [The Eidetic Flame], a gift that allowed them to remember.
 
 This caused an erasure of around 99% of the world and left only around 50k humans surviving, none of whom remember anything about it due to the memory erasing property of the eldritch. this event is only known to those who understand from the story told by the one who understood(The Eidetic Flame). the eldritch being was eventually forced back into the realm beyond reason by the gift giver, who is now "deceased" and one with arcadia along with the one who understood.
